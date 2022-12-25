@@ -2,7 +2,7 @@
 
 # Evony The King's Return Hack 2022 Cheats Generator Unlimited Gems and more
 
-[Click Here For Evony The King's Return Gems Generator](https://gamergeek.xyz/cofb/)
+[Click Here For Evony The King's Return Gems Generator](https://gamergeek.xyz/etkfb/)
 
 ----
 
